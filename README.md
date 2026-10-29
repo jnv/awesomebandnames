@@ -24,19 +24,25 @@ For best results, add only one band name per pull request.
 ## Band names
 
 - 15/16
+- 21 Pun Salute
 - Abrupt Swastikas
 - Aggrivated Sodomy
 - Armed Revival
 - Army of Howards
+- Bionic Eyes
 - Blame the Pope
 - Blind Jaguar
+- Butter Lake
+- Call It Quantum
 - Catch Posideon
 - Cheese Knife Society
 - Closet of Denial
 - Coked-Up Rats on Jazz
 - Comashake
 - Contact Light
+- Contents Are Hot
 - Coyote Creek
+- Creature Experience
 - Cycloptic Society
 - Disastrous Falconry
 - Disco Ancestors
@@ -44,18 +50,26 @@ For best results, add only one band name per pull request.
 - Eight Lives Left
 - Food Stamp Millionaires
 - Fortunate Falconry
+- Good News Wasp
 - Greyscale Rainbow
 - Helium Heart
+- Holy Rattlesnakes
 - Homosexual Notebook
 - The Howards
 - Immortal Zoobat
 - The Invincible Pigs
+- The Meatspace Connection
 - Metric Surprise
+- Not Dead Yet
+- Not Pretentious
+- Novelty Taxidermy
+- Once Marked Men
 - Opposing Obelisks
 - Penguin Warbear
 - Petting Zoo for Elephants
 - Phantom Soulking
 - Purgatory Perhaps
+- Red Lips Forever
 - Rest Stop Sailboat
 - Reverse Paradox
 - Robot Love Child
@@ -65,8 +79,13 @@ For best results, add only one band name per pull request.
 - Seven Cent Compass
 - Seven Day Weekend
 - Solar Circus
+- Space Puncturer
 - Spectres in the Sky
 - Stalinist Personality Cult
+- Strawberry Sunglasses
 - Suicidal Butterflies
+- Super Senpai
+- Syntactical Nightmare (stylized as sɪn'tæk.tɪkal naɪt'mær, of course)
 - Ten Years From Yesterday
+- Violent Meat Babes
 - Walking Party Death Machine
